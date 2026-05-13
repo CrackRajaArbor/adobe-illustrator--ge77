@@ -1,4 +1,4 @@
-# 
+# Adobe Illustrator for macOS updated Script: AI-assisted design & export to SVG offers the most advanced Adobe Illustrator for macOS script, with AI-assisted design and export to
 
 
 
